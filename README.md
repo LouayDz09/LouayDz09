@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LouayDz09
+- 👀 I’m interested in graphic design & programming
+- 🌱 I’m currently learning python
+- 📫 How to reach me : with my officiale discord server
